@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @AsahiHittery
 - 👀 I’m interested in computer games and customizing keyboards
 - 🌱 I’m currently learning PCB projecting
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me - Discord - NUNU POD TANKA SZMATO 🥵#1264
 
 <!---
